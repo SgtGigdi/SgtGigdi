@@ -1,3 +1,3 @@
 Hi there, I'm SgtGigdi 👋
 I love coding.
-just my thang
+just my thing
